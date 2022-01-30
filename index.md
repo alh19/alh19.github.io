@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Graduado en Derecho y Ciencias económicas, proyecto de ingeniero informático y analista de cibersegurdad. Me considero un emprendedor nato, apasionado de las tecnologías y con un profundo interés por aprender día a día.
